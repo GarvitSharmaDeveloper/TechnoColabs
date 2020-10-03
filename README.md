@@ -1,1 +1,1 @@
-# TechnoCollabs
+# TechnoColabs
